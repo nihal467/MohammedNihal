@@ -7,4 +7,4 @@
 
 - Travel diaries and creativity showcased on <a href="https://www.instagram.com/nihal_indian/">Instagram</a> ✈️
 - Sharing professional updates on <a href="https://www.linkedin.com/in/mohammednihal/">LinkedIn</a> 💼
-- Reach out on  <a href="nihalcct@gmail.com">Gmail</a> 📮
+- Reach out on  <a href="mailto:nihalcct@gmail.com">Gmail</a> 📮
